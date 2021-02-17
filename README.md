@@ -1,0 +1,13 @@
+# strona
+elo elo xddd
+
+
+
+
+
+
+
+
+
+
+.
